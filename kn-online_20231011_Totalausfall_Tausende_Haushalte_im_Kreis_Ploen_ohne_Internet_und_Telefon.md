@@ -21,7 +21,6 @@ Der Zweckverband Breitbandversorgung im Kreis Plön ist von einem Totalausfall d
 
 © Quelle: Zweckverband
 
-Artikel anhören • 1 Minute
 
 Einen derart großen und langen Ausfall von Internet, Telefon und Radio hat es im Kreis Plön noch nicht gegeben. Seit Dienstag, 16 Uhr, sind Tausende Haushalte betroffen. Laut einem Firmensprecher soll alles im Laufe des Mittwochs wieder funktionieren. Die Ursache für den Ausfall überrascht.
 
