@@ -29,7 +29,7 @@ Fans von Pasta und Pinsa müssen sich eine Alternative suchen: Das Restaurant Va
 
 
 
-Kiel. Seit 15 Jahren serviert das Restaurant Vapiano in der Kieler Kaistraße italienische Küche. Am Montag, 24. Oktober, ist damit Schluss. Wie eine Unternehmenssprecherin KN-online.de bestätigte, wird am Sonntag zum letzten Mal geöffnet.
+Kiel. Seit 15 Jahren serviert das Restaurant Vapiano in der Kieler Kaistraße italienische Küche. Am Montag, 24. Oktober (2022), ist damit Schluss. Wie eine Unternehmenssprecherin KN-online.de bestätigte, wird am Sonntag zum letzten Mal geöffnet.
 
 In den vergangenen Tagen hatten bereits Gerüchte in den sozialen Netzwerken die Runde gemacht. Eine Person gab sich auf der Plattform „Jodel“ als Mitarbeiter bzw. Mitarbeiterin des Franchise-Standorts in Kiel aus und verbreitete dort die Nachricht über eine bevorstehende Schließung. Andere Nutzerinnen und Nutzer reagierten verwundert: „Wirklich jetzt???“
 
