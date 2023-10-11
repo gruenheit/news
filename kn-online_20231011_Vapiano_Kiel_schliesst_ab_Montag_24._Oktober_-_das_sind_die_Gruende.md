@@ -5,7 +5,7 @@ source: https://www.kn-online.de/lokales/kiel/vapiano-kiel-schliesst-ab-montag-2
 author: Julia Carstens
 ---
 
-# Vapiano Kiel schließt ab Montag, 24. Oktober - das sind die Gründe
+# Vapiano Kiel schließt ab Montag, 24. Oktober (2022) - das sind die Gründe
 
 > ## Excerpt
 > Fans von Pasta und Pinsa müssen sich eine Alternative suchen: Das Restaurant Vapiano in der Kaistraße an der Kieler Hörn macht ab Montag, 24. Oktober, dicht. Das sind die Gründe.
@@ -23,7 +23,7 @@ Das Restaurant Vapiano an der Bahnhofsbrücke nahe der Kieler Hörn schließt se
 
 © Quelle: Ulf Dahl
 
-Fans von Pasta und Pinsa müssen sich eine Alternative suchen: Das Restaurant Vapiano in der Kaistraße an der Kieler Hörn macht ab Montag, 24. Oktober, dicht. Das sind die Gründe.
+Fans von Pasta und Pinsa müssen sich eine Alternative suchen: Das Restaurant Vapiano in der Kaistraße an der Kieler Hörn macht ab Montag, 24. Oktober (2022), dicht. Das sind die Gründe.
 
 ![Julia Carstens](https://www.kn-online.de/resizer/EitOD_FcFmYYZZvAc5tzssrkJEY=/56x56/filters:quality(70):format(webp)/s3.amazonaws.com/arc-authors/madsack/1a1b3e87-5a9e-46a1-9038-420a7c82f9d4.png)
 
